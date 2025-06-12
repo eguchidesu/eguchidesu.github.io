@@ -1,1 +1,0 @@
-# eguchidesu.github.io
